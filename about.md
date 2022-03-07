@@ -1,0 +1,3 @@
+# Über uns
+
+Keine Angst, wir sind eine Band. Wir wollen nur spielen...
